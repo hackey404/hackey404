@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hackey404
+- 👋 Hi, I’m mango 
 - 👀 I’m interested in hacking
 - 🌱 I’m currently learning batch  
 - 😄 Pronouns:he / him 
